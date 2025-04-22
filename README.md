@@ -1,4 +1,4 @@
-Hi There, I'm Teng Chantola 👋
+Hey everyone! 👋 I'm Teng Chantola, a passionate Full-Stack and Mobile Developer dedicated to crafting dynamic, responsive, and user-friendly applications.
 
 
 ## 🌐 Socials:
