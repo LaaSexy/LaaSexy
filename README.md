@@ -1,4 +1,4 @@
-Hey everyone! 👋 Teng Chantola
+Hey everyone! 👋
 
 
 
