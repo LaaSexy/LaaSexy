@@ -1,4 +1,4 @@
-Hey everyone! My name is Teng Chantola👋
+Hey everyone!👋
 
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
